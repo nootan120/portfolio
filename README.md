@@ -1,4 +1,4 @@
-# portfolio
+# nootan kori
 # 👋 Hi there, I'm Nootan Kori!
 
 ### 🎓 MBA Student | HR & Marketing Specialist | Data & AI Enthusiast
